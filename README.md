@@ -1,0 +1,2 @@
+# Homework-1st-March
+Accountability is the only way to breed responsibility... Past 18 years old... everything is your fault and responsibility... your parents did the bare minimum... "I didnt want to be born" well you havent killed yourself so clearly you like this. Im a nice person, im being hard not because i dont sympathise with your predicament or childhood, but because the world wont care past 30, all your excuses will fall on deaf ears. You no longer the youth. Pick the most difficult path. Hit the dead end before trying a different path
